@@ -1,1 +1,1 @@
-# 06-SR-INTHYTHAVARAK-HW003
+# Homework
